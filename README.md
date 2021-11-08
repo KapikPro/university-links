@@ -10,4 +10,5 @@
 [Chemistry](https://clck.ru/YfkU5)
 пароль доступа к сеансу: P6gdvHi5rb9
 
+[English]()
 [Bars](https://bars.mpei.ru/bars_web/ST_Part1/Main/Main?studentID=bbe190fb-580a-ec11-80d2-005056be401c)
