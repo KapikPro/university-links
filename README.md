@@ -4,6 +4,9 @@
 [Computer science](https://clck.ru/YfdCY)
 Пароль сеанса: p9UYiCH4Rk8
 
+[mat analiz](https://clck.ru/Yiwdx)
+Пароль сеанса: rmJTJJav632
+
 [Chemistry](https://clck.ru/YfkU5)
 пароль доступа к сеансу: P6gdvHi5rb9
 
