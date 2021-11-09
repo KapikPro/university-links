@@ -3,6 +3,7 @@
 
 [Computer science](https://clck.ru/YfdCY)
 Пароль сеанса: p9UYiCH4Rk8
+Номер сеанса: 2674 042 8943
 
 [mat analiz](https://clck.ru/Yiwdx)
 Пароль сеанса: rmJTJJav632
