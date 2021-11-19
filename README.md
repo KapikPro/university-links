@@ -1,11 +1,12 @@
 # university-links
 [Linal i angem](https://mpei.webex.com/mpei/j.php?MTID=m40b2f783dd27b85d54c750a852831a12)
 
+
+[del com](https://mpei.webex.com/mpei-en/j.php?MTID=m2048238bd87665952f1abd0a3279e7d1)
+
 [Computer science](https://clck.ru/YfdCY)
 Пароль сеанса: p9UYiCH4Rk8
 Номер сеанса: 2674 042 8943
-
-[del com](https://mpei.webex.com/mpei-en/j.php?MTID=m2048238bd87665952f1abd0a3279e7d1)
 
 [mat analiz](https://clck.ru/Yiwdx)
 Пароль сеанса: rmJTJJav632
