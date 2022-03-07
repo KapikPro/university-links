@@ -1,7 +1,6 @@
 # university-links
-[Computer science]()
-Пароль сеанса: 
-Номер сеанса: 2674 042 8943
+[Computer science](https://mpei.webex.com/wbxmjs/joinservice/sites/mpei/meeting/download/0d5bdcc1f0b042b3bee204c57e8dcad7?siteurl=mpei&MTID=m94abf71421dff1cfccd44ab577db02cb)
+
 
 [mat analiz](https://mpei.webex.com/mpei/k2/j.php?MTID=t87df03ce65d898c9904cd2f38e1234de)
 Пароль сеанса: xmVyHFia383
