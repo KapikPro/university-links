@@ -8,3 +8,5 @@
 [Physics](https://vk.com/away.php?to=https%3A%2F%2Fmpei.webex.com%2Fmpei%2Fj.php%3FMTID%3Dmcc79a8f30ce27fa3de21a8bed29a3fbd&cc_key=)
 
 [Bars](https://bars.mpei.ru/bars_web/ST_Part1/Main/Main?studentID=bbe190fb-580a-ec11-80d2-005056be401c)
+
+[project activity](https://mpei.webex.com/meet/kurilovsn)
